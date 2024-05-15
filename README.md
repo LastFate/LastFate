@@ -1,0 +1,29 @@
+- Hi, Zachary
+- I’m interested in online games, preferably mobile games (mobile user)
+- I’m currently learning german (on duolingo)
+- How to reach me, discord: @lastfate , Twitter/X: @anguishedfate
+- Pronouns: he/him
+  
+games i play: roblox , mobile legends: bang bang , genshin impact , honkai star rail
+
+very f2p, I'm asian (from the Philippines) i barely interact with most Filipino people
+mainly because most of them are cringe /gen
+i wouldn't mind INTS with them though (just please be normal)
+minors can interact with me, but heads up I'm not the most safest person to be around with
+if your a minor, do refrain from flirting with me (it's weird.)
+i am apart of the LGBTQIA+ (Bisexual), i respect the community and if you don't, please DNI.
+i do not support any type of transphobic jokes.
+i am very sensitive about that topic (my special person is trans.)
+if you do not respect that, kindly DNI.
+I'm fine with jokes about anything, just make sure it stays as a joke.
+you can vent to me whenever you'd like (heads up: I'm not the best at comforting and giving advice, but I'm willing to listen)
+
+to the people i am not close with:
+do not joke about transphobia/homophobia to me (you'll just piss me the fuck off)
+i will somehow change personality when i get close to you
+(i am usually chill around ppl and match their vibes, but once I'm comfortable i become a little quirky/hj)
+
+<!---
+lastfate/lastfate is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+You can click the Preview link to take a look at your changes.
+--->
