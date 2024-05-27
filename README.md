@@ -1,4 +1,4 @@
-- Hi, Zachary
+- Hi, I'm zachary
 - I’m interested in online games, preferably mobile games (mobile user)
 - I’m currently learning german (on duolingo)
 - How to reach me,
