@@ -1,4 +1,4 @@
-- Hi, I'm zachary, 07/31/2004
+- Hi, I'm zachary, 07/31/2005
 - I’m interested in online games, preferably mobile games (mobile user)
 - I’m currently learning german (on duolingo)
 - How to reach me,
