@@ -7,12 +7,12 @@ Twitter/X: @anguishedfate
 Instagram: @zaschypy
 - Pronouns: he/him
   
-games i play: roblox , mobile legends: bang bang , genshin impact , honkai star rail
+games i play: roblox , mobile legends: bang bang , genshin impact , honkai star rail , etc .
 
 very f2p, I'm asian (from the Philippines) i barely interact with most Filipino people
 mainly because most of them are cringe /gen
 i wouldn't mind INTS with them though (just please be normal)
-minors can interact with me, but heads up I'm not the safest person to be around with if your a minor (i say the most out of pocket shit ever), if you are a minor do refrain from flirting with me (it's weird.),
+minors can interact with me, but heads up I'm not the safest person to be around with if you're a minor (i say the most out of pocket shit ever), if you are a minor do refrain from flirting with me (it's weird.),
 if your 18+ i really don't mind flirting,
 i am apart of the LGBTQIA+ (Bisexual), i respect the community and if you don't, please DNI. (or just atleast be a decent person and don't say disrespectful shit)
 i do not support any type of transphobic jokes.
